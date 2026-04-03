@@ -3,7 +3,7 @@
 > ### **🛠️ Hannes**
 > I **code** a lot and **mess around with systems** just to see how far I can **push them or break them**, mostly out of curiosity or boredom. 💻💥
 > I play a bunch of **instruments** like **guitar, piano, drums, and bass**, so **music** is a big part of my life too. 🎸🎹🥁
-> I usually **learn by just doing stuff** instead of following guides, and I get really into things I actually **care** about. 🔍
+> I get REALLY into things I actually **care** about. 🔍
 > I’m pretty **open-minded** about who I am and what I’m into, including being **bisexual**, and I don’t really care about **fitting into boxes**. 🌈✨
 
 
