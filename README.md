@@ -6,6 +6,7 @@
 > I get REALLY into things I actually **care** about. 🔍
 > I’m pretty **open-minded** about who I am and what I’m into, including being **bisexual**, and I don’t really care about **fitting into boxes**. 🌈✨
 
+## Main Portfolio: https://gomorronmannen.page.gd/
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/574UajTw7E) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@hannes_swe) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@UCDEk7Hduj429dZGNyb-HtyA) 
