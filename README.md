@@ -1,5 +1,10 @@
 # 💫 About Me:
-> ### **🛠️ Hannes**<br>> <br>> **I’m Hannes.** I **code** a lot and **mess around with systems** just to see how far I can **push them or break them**, mostly out of curiosity or boredom. 💻💥 <br>> <br>> I play a bunch of **instruments** like **guitar, piano, drums, and bass**, so **music** is a big part of my life too. 🎸🎹🥁<br>> <br>> I usually **learn by just doing stuff** instead of following guides, and I get really into things I actually **care** about. 🔍 <br>> <br>> I’m pretty **open-minded** about who I am and what I’m into, including being **bisexual**, and I don’t really care about **fitting into boxes**. 🌈✨ <br>> <br>> I just like **figuring things out** and **doing things my own way**. 🤘
+
+> ### **🛠️ Hannes**
+> I **code** a lot and **mess around with systems** just to see how far I can **push them or break them**, mostly out of curiosity or boredom. 💻💥
+> I play a bunch of **instruments** like **guitar, piano, drums, and bass**, so **music** is a big part of my life too. 🎸🎹🥁
+> I usually **learn by just doing stuff** instead of following guides, and I get really into things I actually **care** about. 🔍
+> I’m pretty **open-minded** about who I am and what I’m into, including being **bisexual**, and I don’t really care about **fitting into boxes**. 🌈✨
 
 
 ## 🌐 Socials:
@@ -11,12 +16,6 @@
 ![](https://github-readme-stats.vercel.app/api?username=gomorron-dev&theme=gruvbox&hide_border=false&include_all_commits=true&count_private=false)<br/>
 ![](https://nirzak-streak-stats.vercel.app/?user=gomorron-dev&theme=gruvbox&hide_border=false)<br/>
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=gomorron-dev&theme=gruvbox&hide_border=false&include_all_commits=true&count_private=false&layout=compact)
-
-## 🏆 GitHub Trophies
-![](https://github-profile-trophy.vercel.app/?username=gomorron-dev&theme=gruvbox&no-frame=false&no-bg=true&margin-w=4)
-
-### 🔝 Top Contributed Repo
-![](https://github-contributor-stats.vercel.app/api?username=gomorron-dev&limit=5&theme=gruvbox&combine_all_yearly_contributions=true)
 
 ---
 [![](https://visitcount.itsvg.in/api?id=gomorron-dev&icon=2&color=6)](https://visitcount.itsvg.in)
