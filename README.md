@@ -4,6 +4,7 @@
 > I **code** a lot 💻💥
 > I play a bunch of **instruments** like **guitar, piano, drums, and bass**, so **music** is a big part of my life too. 🎸🎹🥁
 > I get REALLY into things I actually **care** about. 🔍
+> Diagnosed with ADD ⭐
 
 ## Main Portfolio: https://gomorronmannen.page.gd/
 
