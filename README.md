@@ -6,7 +6,7 @@
 > I get REALLY into things I actually **care** about. 🔍
 > Diagnosed with ADD ⭐
 
-## Main Portfolio: https://gomorronmannen.page.gd/
+## Main Portfolio: https://gomorron.site/
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.com/users/1463562031868285237) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@hannes_swe) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@UCDEk7Hduj429dZGNyb-HtyA) 
